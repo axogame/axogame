@@ -1,0 +1,5 @@
+- 👀 Je suis intéressé par la création de jeux vidéo
+- 🌱 J'apprends actuellement a utuliser toute sorte de logisiel pour créé des jeu
+- 💞️ Je cherche à collaborer sur : notre jeu que l'on fait sur GDevlop
+- 📫 Comment nous joindre : par gmail : axogame200067@gmail.com
+- ⚡ Fun fact: on est un group qui cherche a devenir un studio
